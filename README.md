@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @anaclarauhren07
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-anaclarauhren07/anaclarauhren07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 👋 Bem vindos ao meu perfil 👨‍🎓
+- Meu nome é Ana Clara Uhren
+- Estou estudando na Alura
+- estou me desenvolvendo na linguagem JavaScript
+- utilizo esse espaço para minha organização e compartilhamento dos meus projetos
+- gosto de escutar música, ir na academia, fazer as unhas, assistir tiktok etc
+- 🎧🩹🏋️‍♀️
+- sou estudante do ensino médio integral
+- ana.uhren.camargo@escola.pr.gov.br
+- 
