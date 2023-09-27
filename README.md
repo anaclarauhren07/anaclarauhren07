@@ -6,5 +6,10 @@
 - gosto de escutar música, ir na academia, fazer as unhas, assistir tiktok etc
 - 🎧🩹🏋️‍♀️
 - sou estudante do ensino médio integral
-- ana.uhren.camargo@escola.pr.gov.br
 - 
+-   ### Você entrar em contato comigo
+  ana.uhren.camargo@escola.pr.gov.br
+@ana.uhren.camargo
+
+
+! [_](https://media.tenor.com/MVK4B9LYZGAAAAAj/ijustboughtlandinthemetaverse.gif
