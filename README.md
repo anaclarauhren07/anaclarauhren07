@@ -7,7 +7,7 @@
 - 🎧🩹🏋️‍♀️
 - sou estudante do ensino médio integral
 - 
--   ### Você entrar em contato comigo
+-   ### Você pode entrar em contato comigo
   ana.uhren.camargo@escola.pr.gov.br
 @ana.uhren.camargo
 
